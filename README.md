@@ -12,4 +12,4 @@ My average working hour is 12 hours a day for over 3 years, this is a typical we
 
 
 
-If you end up looking at my git or gist you might find something interesting but beware it doesn't fully show my actual knowledge.
+If you end up looking at my git or gist you might find something interesting but beware it doesn't fully represent my potential.
