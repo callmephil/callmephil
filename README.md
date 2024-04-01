@@ -7,7 +7,7 @@
 > If you're looking for a code review or a consultancy service contact me on LinkedIn I'll be glad to help!
 
 
-My average working hour is 12 hours a day for over 3 years, this is a typical week for me.
+My average working hour is 12 hours a day for over 5 years, this is a typical week for me.
 ![image](https://github.com/callmephil/callmephil/assets/2213079/325892de-049a-4f48-913b-d2b115343497)
 
 
